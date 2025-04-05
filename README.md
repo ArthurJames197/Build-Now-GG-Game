@@ -6,6 +6,8 @@
 
 Whether you're a **fearless sniper**, a **blazing-fast builder**, or a **dark warrior** rising from the shadows, **Build Now GG** is your battlefield to dominate.
 
+![Build Now GG_4](https://github.com/user-attachments/assets/3d5a885c-5595-4fb5-9794-ead4974dae86)
+
 ---
 
 ## 💥 What is Build Now GG?
